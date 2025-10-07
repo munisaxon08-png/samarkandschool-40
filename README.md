@@ -1,1 +1,0 @@
-# samarkandschool-40
